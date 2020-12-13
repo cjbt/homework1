@@ -7,5 +7,12 @@
 - Cecilia Tantay
 - John Tantay
 
-zerah suh gonzalez
-steven gonzalez
+-Zerah S Gonzalez
+-Steven A Gonzalez
+-Baby yoda
+
+Frodo Baggins
+Bilbo Baggins
+
+Leigh G
+Kevin G
